@@ -1,1 +1,1 @@
-[📫 https://djordjekuzmanovic.dev/](https://www.djordjekuzmanovic.com/)
+https://www.djordjekuzmanovic.com/
